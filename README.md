@@ -1,2 +1,2 @@
-Birhanu-Alemayehu_HTML5
+Birhanu Alemayehu_HTML5
 Assignment one
